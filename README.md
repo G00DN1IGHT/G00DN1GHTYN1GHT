@@ -1,2 +1,2 @@
 # G00DN1GHTYN1GHT
-<div class="tenor-gif-embed" data-postid="3408759985156026319" data-share-method="host" data-aspect-ratio="1.02917" data-width="100%"><a href="https://tenor.com/view/murderdrones-n-j-codegold-gif-3408759985156026319">Murderdrones N GIF</a>from <a href="https://tenor.com/search/murderdrones-gifs">Murderdrones GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+https://tenor.com/view/murderdrones-n-j-codegold-gif-3408759985156026319

@@ -1,4 +1,4 @@
--> !(https://64.media.tumblr.com/e65d2548f28fa5c04961f5f3b822b6ca/14d7002478e7c771-f5/s640x960/4dd66fa79d5fb4eb2addcef22a51fdce0ca3a729.pnj) <-
+
 ->![](https://64.media.tumblr.com/a34a5c9879ffb1b24cf049c41ccdf8bb/40ad8a7980250e80-dd/s100x200/c57f540ad549fbfbbf5d4310e6c7ae07c31568fc.pnj) 　Ramu 　![]
 　* she⠀her ! 
 -> Aroace / lithromantic ~!　ISFP　^_^乛⼃
